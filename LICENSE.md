@@ -1,4 +1,4 @@
-
+Trello for macOS smart Script: real-time editing & OCR scanning is the best Trello for macOS script, featuring real-time editing and OCR scanning. Safe, efficient, and optimized
 
 
 
